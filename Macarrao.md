@@ -5,7 +5,7 @@ INGREDIENTES
 2 xícara de farinha de frigo
 1 e 1/2 xícara de leite
 1 colher (sopa) de fermento em pó
-3 potes
+3
 2323
 
 gfgfg
